@@ -1,5 +1,11 @@
-## Hi there 👋
+## Oi bem vindos ao meu perfil 👋
+Oi meu nome é Arisa Takamine
 
+Estou no ultimo ano do ensino médio, estudo no E.E Eduardo Velho Filho, faço parte do itinerario de exatas e quero ser física
+
+jogo Valorant
+
+## Para entrar em contato comigo: 00001108033775sp@al.educacao.sp.gov.br
 <!--
 **ARISATAK3S2024/ARISATAK3S2024** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
